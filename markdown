@@ -14,7 +14,14 @@
 1. growth mindset
    * growth
      * sucseed
+"my name is Roba growth mindset affects my life in many sites of it :
+1.haven’t managed to get things together, I’ve procrastinated and wasted time,
+and I find myself with very little to look back on positively.
 
+2.The growth mindset can open pathways to more creativity and possibility,
+and enable the setting of higher goals and more achievement.
 
-
-my name is Roba I love psychology matters, I keep searching and reading about it.
+3.For a long time, I was fiercely jealous of people I thought were more successful or more intelligent.
+But, with the help of our culture of openness and honesty,
+I was able to understand how the work I do relates to the work of my peers,
+and how it all comes together to create something awesome.
