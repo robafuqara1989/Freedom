@@ -26,3 +26,5 @@ and enable the setting of higher goals and more achievement.
 But, with the help of our culture of openness and honesty,
 I was able to understand how the work I do relates to the work of my peers,
 and how it all comes together to create something awesome.
+
+The end
