@@ -1,4 +1,5 @@
 # growth mindset
+## welcome world! let`s graw our mindset
 ## there are two kind of minds:
 1. growth
 2. fixed
