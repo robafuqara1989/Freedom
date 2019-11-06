@@ -14,4 +14,7 @@
 1. growth mindset
    * growth
      * sucseed
-     
+
+
+
+my name is Roba I love psychology matters, I keep searching and reading about it.
